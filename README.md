@@ -74,4 +74,4 @@ ${{\color{#203FB2}\normalsize{\textsf{Since they all disappeared out here}}}}$
 
 <img width="268" height="268" alt="c22956f261cfa25ef5ec728e888d18c0" src="https://github.com/user-attachments/assets/59f6eb05-ff62-4874-b64e-f7fef462b0fe" />
 
-<sub><sub>scar becsuse hes the best mcyter guys dont even joke lad<sub<sub>
+<sub><sub>scar becsuse hes the best mcyter guys dont even joke lad<sub><sub>
